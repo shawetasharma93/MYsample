@@ -1,1 +1,1 @@
-trying out my first repositery....123..dtdgcgc
+trying out my first repository....123..dtdgcgc
